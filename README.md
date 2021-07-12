@@ -6,6 +6,5 @@
 - 🤔 I’m looking for help with designing issues in my project.
 - 💬 Ask me about web-development stuff.
 - 📫 How to reach me: Email: autsav73@gmail.com
-- 😄 Pronouns: He/His
 - ⚡ Fun fact: I have been started to love design websites too, love to hike once in a week, started lerning to play keyboards. 
 
